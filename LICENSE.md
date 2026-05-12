@@ -1,4 +1,4 @@
-#  
+#  Experience rivals like never before with exclusive Script for rivals, the #1 Script. Includes esp and fly for unbeatable performance.
 
 
 
